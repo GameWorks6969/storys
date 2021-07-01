@@ -37,4 +37,8 @@ sound it out by each letter."**
 Time Tables?"** the elf shrieked. **"We elves never need that. And
 addition and subtractiob and division and fractions? Here, sit down
 beside me, and you simply need to guide me."** Elves know nothing
-about human history
+about human history, to them it is a mystery. So the little elf,
+already a shouter, just got loader. **"Go to the library, I need
+more books. And you can help me read them too!"**
+\
+\
