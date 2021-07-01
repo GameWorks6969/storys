@@ -2,4 +2,4 @@
 This is a collection of story for one of the thingy I am working on and it is on github because *markdown* lol
 
 **--[ Storys ]--**
-[]
+[Who did patrick's homework? | #1]()
