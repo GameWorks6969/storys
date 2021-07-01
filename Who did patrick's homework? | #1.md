@@ -33,6 +33,7 @@ know this world,"** the elf squeked while reading Patrick's homework.
 sound it out by each letter."**
 \
 \
+      As a matter of fact, (I need a break I will continue this so pls wait)
       When it came to maths, Patrick was out of luck. **"What are
 Time Tables?"** the elf shrieked. **"We elves never need that. And
 addition and subtractiob and division and fractions? Here, sit down
