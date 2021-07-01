@@ -33,7 +33,6 @@ know this world,"** the elf squeked while reading Patrick's homework.
 sound it out by each letter."**
 \
 \
-      As a matter of fact, (I need a break I will continue this so pls wait)
       When it came to maths, Patrick was out of luck. **"What are
 Time Tables?"** the elf shrieked. **"We elves never need that. And
 addition and subtractiob and division and fractions? Here, sit down
@@ -43,4 +42,15 @@ already a shouter, just got loader. **"Go to the library, I need
 more books. And you can help me read them too!"**
 \
 \
-I need a break brb
+      As a matter of fact, every day in every way that little elf
+was a nag! Patrick was working harder than ever and was it a drag!
+He was staying up nights, had never felt so weary, was going to
+school with his eyes puffy and bleary.
+\
+\
+      Finally, the last day of school arivved and the elf was free
+to go. As for the homework, there was no more homework, so he quietly
+and slyly slipped slipped out the back door.
+\
+\
+      q
